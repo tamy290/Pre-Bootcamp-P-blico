@@ -1,1 +1,1 @@
-# Pre-Bootcamp-P-blico
+# Pre-Bootcamp-Publico
